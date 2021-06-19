@@ -18,3 +18,5 @@ Here are some ideas to get you started:
 谋爱先谋生，爱人先爱己
 
 修身齐家治国平天下
+
+我爱你，我的女孩
